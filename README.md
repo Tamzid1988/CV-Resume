@@ -10,4 +10,4 @@ My ability to multitask successfully is enhanced by my strong leadership and int
 
 To inquire about any career opportunities or to share any questions, send me an- 
 Email at thunique1988@gmail.com. or WhatsApp me at +880 1711 927924.
-![image](https://github.com/user-attachments/assets/0266562b-6abb-4553-90f4-622e3c53fcf4)
+
