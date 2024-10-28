@@ -1,5 +1,5 @@
 # About
-**MD TAMZID HASAN**\\
+**MD TAMZID HASAN**
 **MPH (NSU), MPEPO (CTH), BSc in EEE (AUST)**
 **Email: tamzid.hasan@northsouth.edu & thunique1988@gmail.com**
 **Mobile: +880 1711 927924 & +880 1847 174216**
